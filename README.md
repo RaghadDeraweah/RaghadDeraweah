@@ -6,7 +6,7 @@
 
 ---
 
-📄 **[View My CV](https://www.canva.com/design/DAF23nKp6MI/YkgCwsNf3NXWTzoRR1m5hQ/edit?utm_content=DAF23nKp6MI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)**  
+📄 **[View My CV](https://drive.google.com/file/d/1JgCFh_lqjjq7KQflYJ_XIyd5ptXJ8Yyb/view?usp=sharing)**  
 📧 **Email:** raghad.taqatqa@email.com  
 🔗 **LinkedIn:** [linkedin.com/in/raghad-taqatqa](https://www.linkedin.com/in/raghad-taqatqa-666b53340)
 

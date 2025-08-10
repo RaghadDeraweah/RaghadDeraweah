@@ -6,7 +6,7 @@
 
 ---
 
-📄 **[View My CV](https://drive.google.com/file/d/1g0L_I0rLhlqHwVVq65uuiouXnuYa0WY0/view?usp=sharing)**  
+📄 **[View My CV](https://drive.google.com/file/d/1TT-PTC9LO5OdQUT5NLtw_uyZ80P0rMPo/view?usp=sharing)**  
 📧 **Email:** raghad.taqatqa@email.com  
 🔗 **LinkedIn:** [linkedin.com/in/raghad-taqatqa](https://www.linkedin.com/in/raghad-taqatqa-666b53340)
 
